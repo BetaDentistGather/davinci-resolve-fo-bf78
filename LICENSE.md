@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows extension with ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows Extension | real-time-preview +
 
 
 
